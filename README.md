@@ -1,1 +1,0 @@
-# flash_sale_project
